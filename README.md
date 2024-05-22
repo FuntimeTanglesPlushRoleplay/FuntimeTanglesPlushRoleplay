@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FuntimeTanglesPlushRoleplay
-- 👀 I’m interested in fnaf, chonny jash, art, animales, roleplaying, throwing things out windows, cosplaying, being outside, water, science, and swords 
+- 👀 I’m interested in fnaf, chonny jash, art, animales, roleplaying, throwing things out windows, cosplaying, being outside, water, science, swords, and the glass scientist 
 - 🌱 I’m currently learning nothing really 
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me discord- Funtimetanglesplushroleplay
